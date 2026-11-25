@@ -8,7 +8,7 @@ ABOUT ME (or before int w/ me):
     ^ even if im mostly silent, im still listening, because i love when people yap about everything
 - i love interacting but im too nervous to int first
 - i love drawing, im spending most of the time drawing LMAO (IF U WANNA DRAW WITH ME ON WBF PLEASE LMK, IT WOULD BE SO COOL), i also wanna start making animations ^_^ 
-- oh and im polish, my english is very broken
+- oh and im from Poland, and sadly my english is very broken
   
 MAIN FANDOMS:
 - unstable universe  (im right after director arc !!! try to not spoiler...)
