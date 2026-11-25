@@ -4,7 +4,7 @@ sadly, this github is heavy wip, i have to figure out how to make this 'readme' 
 
 
 ABOUT ME (or before int w/ me):
-- im semi verbal / selective mute, i struggle with talking alot unless we are really close. otherwise, i will probably spam ''wowie/wowza/wowzers'' / ''oo'' / ''okay'' etc. or just nood as a sign that i listen to u
+- im semi verbal / selective mute, i struggle with talking alot unless we are really close. otherwise, i will probably spam ''wowie/wowza/wowzers'' , ''oo'' , ''okay'' etc. or just nood as a sign that i listen to u
     ^ even if im mostly silent, im still listening, because i love listening when people yap about everything
 - i love interacting but im mostly shy asf or matching ur energy
 - i love drawing, im spending most of the time drawing LMAO, i also wanna start making animations ^_^
