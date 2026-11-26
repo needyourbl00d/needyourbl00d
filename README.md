@@ -9,6 +9,7 @@ ABOUT ME (or before int w/ me):
 - im semi verbal / selective mute, i struggle with talking alot unless we are really close. otherwise, i will probably spam ''wowie/wowza/wowzers'' , ''oo'' , ''okay'' etc. or just nood as a sign that i listen to u
     ^ even if im mostly silent, im still listening, because i love when people yap about everything
 - i love interacting but im too nervous to int first
+- I LOVE CUDDLES , (CUDDLECOMF , COVERCOMF)  COME CUDDLE WHENEVER U WANNA!!!
 - i love drawing, im spending most of the time drawing LMAO (IF U WANNA DRAW WITH ME ON WBF PLEASE LMK, IT WOULD BE SO COOL), i also wanna start making animations ^_^ 
 - oh and im from Poland, sadly my english is very broken
   
