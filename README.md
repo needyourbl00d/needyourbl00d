@@ -21,7 +21,7 @@ MAIN FANDOMS:
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthanks for reading !!!
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/1ce04616-bffa-43da-aa0e-e941bc9962c1" />
+⠀ ⠀ ⠀ ⠀ ⠀  ⠀<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/1ce04616-bffa-43da-aa0e-e941bc9962c1" />
 
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀5201314
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀5201314
