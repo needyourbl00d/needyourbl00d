@@ -1,4 +1,6 @@
-hi!! if u read this, welcome here ^_^ 
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀<img width="735" height="459" alt="❄️Minecraft and winter ❄️" src="https://github.com/user-attachments/assets/d2e8b66e-6786-401f-ac50-fd9b15ebb4e6" />
+
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀󠀠⠀ ⠀hi!! if u read this, welcome here ^_^ 
 
 sadly, this github is heavy wip, i have to figure out how to make this 'readme' thing so it will look pretty enough, and buy new pen to draw (because i lost my old one) so i can make pfp/images to put in here... raaaah so many things to do for so little ,,, same goes with strawpage, its wip but gimmicks are always welcomed heh
 
@@ -15,6 +17,8 @@ MAIN FANDOMS:
 - qsmp2  (main pov: multi, graf, quackity)
 - the search for the lost totem
 
-    ^ there is probably more but im too lazy to type all of them
+  ^ there is more but im too lazy to type all of them
 
-thanks for reading bro ^_^
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthanks for reading !!!
+
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/1ce04616-bffa-43da-aa0e-e941bc9962c1" />
