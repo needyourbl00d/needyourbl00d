@@ -1,4 +1,4 @@
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀<img width="735" height="459" alt="❄️Minecraft and winter ❄️" src="https://github.com/user-attachments/assets/d2e8b66e-6786-401f-ac50-fd9b15ebb4e6" />
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀<img width="735" height="459" alt="❄️Minecraft and winter ❄️" src="https://github.com/user-attachments/assets/d2e8b66e-6786-401f-ac50-fd9b15ebb4e6" />
 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀󠀠⠀ ⠀hi!! if u read this, welcome here ^_^ 
 
@@ -21,4 +21,7 @@ MAIN FANDOMS:
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthanks for reading !!!
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/1ce04616-bffa-43da-aa0e-e941bc9962c1" />
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/1ce04616-bffa-43da-aa0e-e941bc9962c1" />
+
+
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀5201314
