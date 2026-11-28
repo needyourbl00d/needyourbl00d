@@ -2,7 +2,7 @@
 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀󠀠⠀ ⠀hi!! if u read this, welcome here ^_^ 
 
-sadly, this github is heavy wip, i have to figure out how to make this 'readme' thing so it will look pretty enough, and buy new pen to draw (because i lost my old one) so i can make pfp/images to put in here... raaaah so many things to do for so little ,,, same goes with strawpage, its wip but gimmicks are always welcomed heh
+sadly, this github is heavy wip, i have to figure out how to make this 'readme' thing so it will look pretty enough, and draw smt to put in here... raaaah so many things to do for so little ,,, same goes with strawpage, its wip but gimmicks are always welcomed heh
 
 
 ABOUT ME (or before int w/ me):
